@@ -16,43 +16,43 @@
 > (알로세론요놀 예 노이산 라손탄?)
 
 저희의 의지는 무엇입니까?
-> aloselon nokes lasontan?
+> aloselon nokes lasontan?  
 > (알로세론 녹스 라손탄?)
 
 저희의 목표는 무엇입니까?
-> aloselon nasoit lasontan?
+> aloselon nasoit lasontan?  
 > (알로세론 나소잇 라손탄?)
 
 저희는 기반시설을 세우고 공장을 세웠으며 옆나라의 침략에도 세계적인 독립을 이끌어 내었습니다.
-> aloselonje noisanda untan tasantede sante da lantol loihenje hantoi janastion.
+> aloselonje noisanda untan tasantede sante da lantol loihenje hantoi janastion.  
 > (알로세론 노이산예 운튼 타산테 산테다 란토이 로이헨예 한노이 야나스티흔)
 
 여러분, 저희에게는 기회가 있습니다.
-> anselon, aloselon nasoitesje nasoites.
+> anselon, aloselon nasoitesje nasoites.  
 > (안세론, 알로세론 나소이테예 나소이츠)
 
 더이상 저희나라가 위험해선 안됩니다.
-> molton aloselon janoi lasontan.
+> molton aloselon janoi lasontan.  
 > (몰톤 알로게론 자노이 라손튼)
 
 저희나라가 더이상 침략을 당해선 안됩니다.
-> aloselon janoi loitenje lasontan.
+> aloselon janoi loitenje lasontan.  
 > (알로세론 야노이 로이튼예 라손튼)
 
 저희나라가 더이상 약해보여선 안됩니다.
-> aloselon janoi noisanje lasontan.
+> aloselon janoi noisanje lasontan.  
 > (알로세론 야노이 노이산예 라손튼)
 
 저희나라가 다른 나라에게 간섭당하면 안됩니다.
-> aloselon janoi tolonje sanloije lasontan.
+> aloselon janoi tolonje sanloije lasontan.  
 > (알로세론 야노이 토론예 산로이이 라손튼)
 
 저희는 강합니다!
-> aloselo san!
+> aloselo san!  
 > (알세로 산!)
 
 저희의 민족은 그 어떤 민족보다 위대하며, 우월합니다!
-> aloselo joi lantol joi loin lantolje molto desitan!
+> aloselo joi lantol joi loin lantolje molto desitan!  
 > (알로세로 조이 른톨 조이 로은 란톨예 몰토 데시튼!)
 
 ---
