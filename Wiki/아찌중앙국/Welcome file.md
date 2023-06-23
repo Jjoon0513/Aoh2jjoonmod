@@ -9,7 +9,7 @@
 
 ---
 
-<h3> <center> 1923년 6월 17일 서울 연설</h3> </center>
+<center> <h3> 1923년 6월 17일 서울 연설 </h3> </center>
 
 여러분 저희의 나라는 무엇입니까?
 > aloselonjonol je noisan lasontan?  
