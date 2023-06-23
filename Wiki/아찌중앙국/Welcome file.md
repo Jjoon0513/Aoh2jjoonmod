@@ -60,6 +60,7 @@
 
 ![연설문](https://media.discordapp.net/attachments/1072451156640546886/1121834031517024377/88_20230624005019.png)
 연설문을 재현한것
+
 ---
 
 <center> <h3> 역사 </h3> </center>
