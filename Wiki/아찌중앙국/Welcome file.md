@@ -32,20 +32,20 @@
 > (안세론, 알로세론 나소이테예 나소이츠)
 
 더이상 저희나라가 위험해선 안됩니다.
-> molton aloselon janoi lasontan.  
-> (몰톤 알로게론 자노이 라손튼)
+> molton aloselon janoi lasonnoi.  
+> (몰톤 알로게론 자노이 라손노이)
 
 저희나라가 더이상 침략을 당해선 안됩니다.
-> aloselon janoi loitenje lasontan.  
-> (알로세론 야노이 로이튼예 라손튼)
+> aloselon janoi loitenje lasonnoi.  
+> (알로세론 야노이 로이튼예 라손노이)
 
 저희나라가 더이상 약해보여선 안됩니다.
-> aloselon janoi noisanje lasontan.  
-> (알로세론 야노이 노이산예 라손튼)
+> aloselon janoi noisanje lasonnoi.  
+> (알로세론 야노이 노이산예 라손노이)
 
 저희나라가 다른 나라에게 간섭당하면 안됩니다.
-> aloselon janoi tolonje sanloije lasontan.  
-> (알로세론 야노이 토론예 산로이예 라손튼)
+> aloselon janoi tolonje sanloije lasonnoi.  
+> (알로세론 야노이 토론예 산로이예 라손노이)
 
 저희는 강합니다!
 > aloselo san!  
