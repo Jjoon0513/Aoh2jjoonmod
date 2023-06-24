@@ -45,7 +45,7 @@
 
 저희나라가 다른 나라에게 간섭당하면 안됩니다.
 > aloselon janoi tolonje sanloije lasontan.  
-> (알로세론 야노이 토론예 산로이이 라손튼)
+> (알로세론 야노이 토론예 산로이 라손튼)
 
 저희는 강합니다!
 > aloselo san!  
