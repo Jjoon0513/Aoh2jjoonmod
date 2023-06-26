@@ -25,7 +25,7 @@
 
 저희는 기반시설을 세우고 공장을 세웠으며 옆나라의 침략에도 세계적인 독립을 이끌어 내었습니다.
 > aloselonje noisanda untan tasantede sante da lantol loihenje hantoi janastion.  
-> (알로세론 노이산예 운튼 타산테 산테다 란토이 로이헨예 한노이 야나스티흔)
+> (알로세론 노이산예 운튼 /타산테 산테다 /란토이 로이헨예 한노이 야나스티흔)
 
 여러분, 저희에게는 기회가 있습니다.
 > anselon, aloselon nasoitesje nasoites.  
